@@ -14,7 +14,7 @@ Em resumo, o estudo é um investimento valiasa que pode melhorar significativame
 
 ![](https://tenor.com/pt-BR/view/cat-sandwich-calories-snack-meal-gif-9385312828138126971.gif)
 
-![](https://tenor.com/pt-BR/view/cats-kitten-kittens-angry-cat-angry-gif-27697929.git)
+![](https://tenor.com/pt-BR/view/cats-kitten-kittens-angry-cat-angry-gif-27697929.gif)
 
 
 
