@@ -15,5 +15,4 @@ Em resumo, o estudo é um investimento valiasa que pode melhorar significativame
 ![](https://tenor.com/pt-BR/view/cat-sandwich-calories-snack-meal-gif-9385312828138126971.gif)
 
 
-![image](https://github.com/Larissaburigo/Atividade-5/assets/125504094/ae7c167b-1eee-44cd-a71b-c99087eea2e0)
 
