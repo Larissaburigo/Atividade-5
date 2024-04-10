@@ -18,6 +18,7 @@ Em resumo, o estudo é um investimento valiasa que pode melhorar significativame
 
 $\sqrt 25$
 
+$\sqrt 36$ =6
 
 
 
