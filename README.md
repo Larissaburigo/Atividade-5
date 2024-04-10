@@ -9,7 +9,7 @@ pessoal.*
 
 Em resumo, o estudo é um investimento valiasa que pode melhorar significativamente nossas oportunidades na vida. Ao nos dedicarmos ao sprenditado rontinus, estamos investindo em nosso próprio sucesso e enriquecendo nossa experiència de vida de maneiras .
 
-![image](https://github.com/Larissaburigo/Atividade-5/assets/125504094/a82cb5dd-7c60-4724-9177-314b89d565ad)
+
 
 ![](https://tenor.com/pt-BR/view/cat-sandwich-calories-snack-meal-gif-9385312828138126971)
 
